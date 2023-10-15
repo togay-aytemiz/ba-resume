@@ -1,1 +1,1 @@
-# ba-resume
+https://togay-aytemiz.github.io/ba-resume/
